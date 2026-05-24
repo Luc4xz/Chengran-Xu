@@ -1,0 +1,1 @@
+I'm especially interested in human-computer interaction (HCI), Human-AI Interaction (HAI) and intelligent technologies, particularly how emerging technologies influence human behavior and everyday experiences.
